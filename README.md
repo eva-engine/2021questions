@@ -9,4 +9,4 @@
 
 想参与进来可以加我微信哦。我拉你进入微信群。
 
-!(https://gw.alicdn.com/tfs/TB12uJjxAP2gK0jSZPxXXacQpXa-392-520.png)[]
+![](https://gw.alicdn.com/tfs/TB12uJjxAP2gK0jSZPxXXacQpXa-392-520.png)
